@@ -4,7 +4,7 @@
 - EXTREMELY TALKATIVE AND SOCIAL, JUST BAD AT
   STARTING CONVOS
 
-                                                    <span style="color:#f084a5;">"Tsukasa! You just smiled!"</span>
+                                                         "Tsukasa! You just smiled!"
   ![Emu Otori high fiving her two friends, Rui Kamishiro and Nene Kusanagi](https://static.wikia.nocookie.net/projectsekai/images/9/9d/Operation_Smile_Was_A_Great_Success%21.png)
 
 # { PONYTOWN }
