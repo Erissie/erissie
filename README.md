@@ -11,10 +11,12 @@
 - IWCUF JUST MEANS I DON'T WANT TO TALK! CUDDLES R FINE
 - INT INT INT WITH ME IF I DONT HAVE IWCUF!
 - ALWAYS COSPLAYING, NEVER MAKES OCS!!
+![Emu Otori hugging her friend, Nene Kusanagi](https://static.wikia.nocookie.net/projectsekai/images/f/f7/Happy_Happy_Happy_Hospitality.png)
 
 # { MAIN HYPERFIXATIONS + FAVES }
 - TWISTED WONDERLAND
     - MALLEUS DRACONIA & LEONA KINGSCHOLAR'S WIFE REAL /j
+    - ![Malleus Draconia, a dragon fae, with a plushie of himself on his shoulder as he holds a spinning wheel towards the viewer, with a human, half-fae, and another fae stand behind him](https://static.wikia.nocookie.net/twisted-wonderland/images/0/0c/Card_Malleus_SSR_Tsumsitter_Groovy.png)
 - GENSHIN IMPACT
     - HU TAO & FURINA R JUST ME FR!! MAVUIKA & FLINS' WIFE REAL /j
 - PROJECT SEKAI
