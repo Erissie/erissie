@@ -21,12 +21,15 @@
  ![A PROFILE PICTURE OF LEONA KINGSCHOLAR, A LION BEASTMAN, GRINNING AT THE CAMERA](https://static.wikia.nocookie.net/twisted-wonderland/images/5/53/Icon_Leona_SSR_Nightmare_Suit_Groovy.png)
 - GENSHIN IMPACT
     - HU TAO & FURINA R JUST ME FR!! MAVUIKA & FLINS' WIFE REAL /j
+ 
+![PICTURE OF HU TAO LOOKING FORWARD](https://static.wikia.nocookie.net/gensin-impact/images/e/e9/Hu_Tao_Icon.png)
+![PICTURE OF FURINA LOOKING FORWARD](https://static.wikia.nocookie.net/gensin-impact/images/e/e6/Furina_Icon.png)
 - PROJECT SEKAI
     - EMU OTORI IS JUST ME FR, RUI KAMISHIRO + EVERYONE ELSE!!
 - UMAMUSUME
     - HARU URARA, ASTON MACHAN, ZENNO ROB ROY, TRANSCEND, WONDER ACUTE,
       STILL IN LOVE, LOVES ONLY YOU, NEO UNIVERSE, FUSAICHI PANDORIA,
-      RHEIN KRAFT, GOLD SHIP + EVERYONE ELSE!!
+      RHEIN KRAFT, GOLD SHIP, AGNES DIGITAN, MEISHO DOTO + EVERYONE ELSE!!
 
 # { DNI }
 - [AVERAGE DNI](https://rentry.co/dnfifreaks)
