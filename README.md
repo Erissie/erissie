@@ -34,11 +34,11 @@
       RHEIN KRAFT, GOLD SHIP, AGNES DIGITAN, MEISHO DOTO + EVERYONE ELSE!!
 
 ![HARU URARA IN A KIMONO DANCING](https://umamusu.wiki/w/images/e/e9/Game_Asset_chara_stand_1052_105210.png)
-
 # { DNI }
 - [AVERAGE DNI](https://rentry.co/dnfifreaks)
 - PEOPLE WHO MAKE NSFW JOKES ON HERE LIKE HAVING "SEX" OR
 MAKING NSFW JOKES IN PUBLIC CHAT
 - PRO-PROSHIPPER
 - NON-SHARING YUMES (NOT A YUME)
+
 ![PICTURE OF EMU OTORI AS A KNIGHT HOLDING A SWORD](https://static.wikia.nocookie.net/projectsekai/images/9/9a/Dream_Study_Session%3F_T_icon.png)
