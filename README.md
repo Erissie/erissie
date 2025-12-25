@@ -16,7 +16,7 @@
 # { MAIN HYPERFIXATIONS + FAVES }
 - TWISTED WONDERLAND
     - MALLEUS DRACONIA & LEONA KINGSCHOLAR'S WIFE REAL /j
-    - ![Malleus Draconia, a dragon fae, with a plushie of himself on his shoulder as he holds a spinning wheel towards the viewer, with a human, half-fae, and another fae stand behind him](https://static.wikia.nocookie.net/twisted-wonderland/images/0/0c/Card_Malleus_SSR_Tsumsitter_Groovy.png)
+      ![A PROFILE PICTURE OF MALLEUS DRACONA, A DRAGON FAE, SMILING TRIUMPHANTLY AT THE VIEWER](https://static.wikia.nocookie.net/twisted-wonderland/images/f/fd/Icon_Malleus_SSR_Tsumsitter_Groovy.png)![A PROFILE PICTURE OF LEONA KINGSCHOLAR, A LION BEASTMAN, GRINNING AT THE CAMERA](https://static.wikia.nocookie.net/twisted-wonderland/images/5/53/Icon_Leona_SSR_Nightmare_Suit_Groovy.png)
 - GENSHIN IMPACT
     - HU TAO & FURINA R JUST ME FR!! MAVUIKA & FLINS' WIFE REAL /j
 - PROJECT SEKAI
