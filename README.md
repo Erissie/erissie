@@ -41,3 +41,4 @@
 MAKING NSFW JOKES IN PUBLIC CHAT
 - PRO-PROSHIPPER
 - NON-SHARING YUMES (NOT A YUME)
+![PICTURE OF EMU OTORI AS A KNIGHT HOLDING A SWORD](https://static.wikia.nocookie.net/projectsekai/images/9/9a/Dream_Study_Session%3F_T_icon.png)
