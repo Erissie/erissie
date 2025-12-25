@@ -26,10 +26,14 @@
 ![PICTURE OF FURINA LOOKING FORWARD](https://static.wikia.nocookie.net/gensin-impact/images/e/e6/Furina_Icon.png)
 - PROJECT SEKAI
     - EMU OTORI IS JUST ME FR, RUI KAMISHIRO + EVERYONE ELSE!!
+ 
+![PICTURE OF RUI KAMISHIRO AND EMU OTORI IN BUMPER CARS WITH NENE KUSANAGI IN THE BACKGROUND RUNNINGI INTO A WALL](https://static.wikia.nocookie.net/projectsekai/images/d/d6/I_Can%27t_Just_Lose%2C_Can_I%3F.png)
 - UMAMUSUME
     - HARU URARA, ASTON MACHAN, ZENNO ROB ROY, TRANSCEND, WONDER ACUTE,
       STILL IN LOVE, LOVES ONLY YOU, NEO UNIVERSE, FUSAICHI PANDORIA,
       RHEIN KRAFT, GOLD SHIP, AGNES DIGITAN, MEISHO DOTO + EVERYONE ELSE!!
+
+![HARU URARA IN A KIMONO DANCING](https://umamusu.wiki/w/images/e/e9/Game_Asset_chara_stand_1052_105210.png)
 
 # { DNI }
 - [AVERAGE DNI](https://rentry.co/dnfifreaks)
