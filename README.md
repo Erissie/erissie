@@ -3,9 +3,9 @@
 - AUTISTIC, PLEASE USE TONE TAGS
 - EXTREMELY TALKATIVE AND SOCIAL, JUST BAD AT
   STARTING CONVOS
+                                                     "Tsukasa! You just smiled!"
 
-                                                       "Tsukasa! You just smiled!"
-  ![Emu Otori high fiving her two friends, Rui Kamishiro and Nene Kusanagi](https://static.wikia.nocookie.net/projectsekai/images/9/9d/Operation_Smile_Was_A_Great_Success%21.png)
+   ![Emu Otori high fiving her two friends, Rui Kamishiro and Nene Kusanagi](https://static.wikia.nocookie.net/projectsekai/images/9/9d/Operation_Smile_Was_A_Great_Success%21.png)
 
 # { PONYTOWN }
 - CUDZ COMF ^_^ ALWAYS CUDDLE WITH ME!
