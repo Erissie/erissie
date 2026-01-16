@@ -72,7 +72,7 @@ Minecraft, Still Wakes the Deep
 <summary>${\color{#FF66BB}FAVES}$</summary>
 
 ### Genshin Impact:
-Hu Tao, Furina, Mavuika & Flins!
+ ${\color{#6a4e38}Hu}$  ${\color{#6a4e38}Tao}$,  ${\color{#212fae}Furina}$,  ${\color{#d61818}Mavuika}$ & ${\color{#411c87}Flins}$
 
 ### Project Sekai:
 Emu Otori (she is literally me btw) & Rui Kamishiro
