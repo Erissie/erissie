@@ -8,7 +8,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
  <details>
 
   <summary>BASIC INFO!!</summary>
-  - I'm 19!!
+  + I'm 19!!
   
   - I have autism, please use tone tags
   & be patient!
@@ -16,7 +16,6 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
   * I actually have a hard time talking to others
    at first, and am usually scared to interact first
    it does not mean I hate you!! no worries ^_^
-
 
   - I'm very clingy! I really enjoy hanging out
    with my friends
