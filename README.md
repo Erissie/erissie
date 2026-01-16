@@ -17,7 +17,7 @@ Minecraft, Still Wakes the Deep
 </details>
 
 
-</details>
+<details>
 <summary>My favorite characters from my hyperfixations!</summary>
 
 ### Genshin Impact:
@@ -30,3 +30,8 @@ Emu Otori (she is literally me btw) & Rui Kamishiro
 Haru Urara, Meisho Doto, Orfevre, Daitaku Helios, Daiichi Ruby,
 
 Agnes Digital, Neo Universe, Rhein Kraft, Aston Machan  ${\color{#ac0000}DON'T}$ ${\color{#ac0000}FORGET}$ ${\color{#ac0000}ME}$
+
+### Twisted Wonderland
+Malleus Draconia & Leona Kingscholar MY WIVES!!!! ❤️
+
+</details>
