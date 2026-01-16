@@ -1,6 +1,9 @@
 # Hello! I'm ${\color{#fb8bcf}Eris!}$
 I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
+<img width="993" height="161" alt="image" src="https://github.com/user-attachments/assets/9463bb1f-327e-4478-9e4f-df16d72f4cf3" />
+
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=1000&color=FF75D7&width=435&lines=%22From+now+on+take+a+note+of;the+signs+of+your+wish+one+by+one!%22)](https://git.io/typing-svg)
 
  ${\color{#fb8bcf}TEST}$
@@ -9,17 +12,8 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
   <summary>BASIC INFO!!</summary>
  
-  + I'm 19!!
-  
-  - I have autism, please use tone tags
-  & be patient!
- 
-  * I actually have a hard time talking to others
-   at first, and am usually scared to interact first
-   it does not mean I hate you!! no worries ^_^
-
-  - I'm very clingy! I really enjoy hanging out
-   with my friends
+ - I'm 19!
+ - EXTREMLY clingy! I always want to hang out w green names ^_^
  </details>
 
  <details>
@@ -43,12 +37,21 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
  
   Malleus x 1st/2nd years shippers, Leona x Ruggie shippers, Idia x Lilia shippers
  
-  Any ex-friends,
+  Any ex-friends, people who won't use tone tags when I ask them to
+ </details>
+
+ <details>
+
+  <summary>PONYTOWN INFO!!</summary>
+
+  - Cuddle comf! I enjoy people hanging out with me ^_^
+  - C+H always unless I have dniuf (VERY RARE)
+  - IWCUF just means don't talk to me! Cuddles r fine <3
  </details>
 
 <details>
 
-<summary>My hyperfixations and smaller interests!</summary>
+<summary>My HYPERFIXATIONS AND SMALLER INTERESTS!</summary>
 
 ### Hyperfixations:
 Genshin Impact, Project Sekai, Umamusume, Twisted Wonderland, Slime Rancher
@@ -61,7 +64,7 @@ Minecraft, Still Wakes the Deep
 
 
 <details>
-<summary>My favorite characters from my hyperfixations!</summary>
+<summary>MY FAVES</summary>
 
 ### Genshin Impact:
 Hu Tao, Furina, Mavuika & Flins!
