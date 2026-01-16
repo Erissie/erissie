@@ -85,6 +85,6 @@ ${\color{#e078d3}Haru}$ ${\color{#e078d3}Urara,}$ ${\color{#6d5edc}Meisho}$ ${\c
  ${\color{#570000}Still}$ ${\color{#570000}In}$ ${\color{#570000}Love,}$ ${\color{#de0000}Loves}$ ${\color{#de0000}Only}$ ${\color{#de0000}You,}$ ${\color{#605fd1}Wonder}$ ${\color{#605fd1}Acute,}$ ${\color{#d3714b}Seeking}$ ${\color{#d3714b}the}$ ${\color{#d3714b}Pearl}$
 
 ### Twisted Wonderland
-Malleus Draconia & Leona Kingscholar MY WIVES!!!! ❤️
+ ${\color{#338111}Malleus}$ ${\color{#338111}Draconia}$ &  ${\color{#c79119}Leona}$ ${\color{#c79119}Kingscholar}$ MY WIVES!!!! ❤️
 
 </details>
