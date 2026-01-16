@@ -21,7 +21,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  <details>
 
-  <summary>${\color{#7c0000}DNI}$ ${\color{#7c0000}AND}$ ${\color{#7c0000}IWC}$</summary>
+  <summary>${\color{#a80060}DNI}$ ${\color{#a80060}AND}$ ${\color{#a80060}IWC}$</summary>
  
   ### DNI
   [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
@@ -45,7 +45,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  <details>
 
-  <summary>${\color{#fb8bcf}PONYTOWN}$</summary>
+  <summary>${\color{#cd3a8e}PONYTOWN}$</summary>
 
   - Cuddle comf! I enjoy people hanging out with me ^_^
   - C+H always unless I have dniuf (VERY RARE)
@@ -57,7 +57,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
 <details>
 
-<summary>${\color{#fb8bcf}HYPERFIXATIONS}$ ${\color{#fb8bcf}AND}$ ${\color{#fb8bcf}INTERESTS}$</summary>
+<summary>${\color{#ff0092}HYPERFIXATIONS}$ ${\color{#ff0092}AND}$ ${\color{#ff0092}INTERESTS}$</summary>
 
 ### Hyperfixations:
 Genshin Impact, Project Sekai, Umamusume, Twisted Wonderland, Slime Rancher
@@ -70,7 +70,7 @@ Minecraft, Still Wakes the Deep
 
 
 <details>
-<summary>${\color{#fb8bcf}FAVES}$</summary>
+<summary>${\color{#FF66BB}FAVES}$</summary>
 
 ### Genshin Impact:
 Hu Tao, Furina, Mavuika & Flins!
