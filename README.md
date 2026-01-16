@@ -82,7 +82,7 @@ ${\color{#e078d3}Haru}$ ${\color{#e078d3}Urara,}$ ${\color{#6d5edc}Meisho}$ ${\c
 
  ${\color{#e08cd2}Agnes}$ ${\color{#e08cd2}Digital,}$ ${\color{#2d43cd}Neo}$ ${\color{#e6cf59}Universe,}$ ${\color{#c7346d}Rhein}$ ${\color{#c7346d}Kraft,}$ ${\color{#ac0000}Aston}$ ${\color{#ac0000}Machan}$ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=3500&pause=1000&color=B60000&width=435&lines=Don't+forget+me.)](https://git.io/typing-svg)
 
- ${\color{#fb8bcf}Still}$ ${\color{#fb8bcf}In}$ ${\color{#fb8bcf}Love,}$ ${\color{#fb8bcf}Loves}$ ${\color{#fb8bcf}Only}$ ${\color{#fb8bcf}You,}$ ${\color{#fb8bcf}Wonder}$ ${\color{#fb8bcf}Acute,}$ ${\color{#fb8bcf}Seeking}$ ${\color{#fb8bcf}the}$ ${\color{#fb8bcf}Pearl}$
+ ${\color{#570000}Still}$ ${\color{#570000}In}$ ${\color{#570000}Love,}$ ${\color{#de0000}Loves}$ ${\color{#de0000}Only}$ ${\color{#de0000}You,}$ ${\color{#605fd1}Wonder}$ ${\color{#605fd1}Acute,}$ ${\color{#d3714b}Seeking}$ ${\color{#d3714b}the}$ ${\color{#d3714b}Pearl}$
 
 ### Twisted Wonderland
 Malleus Draconia & Leona Kingscholar MY WIVES!!!! ❤️
