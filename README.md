@@ -22,7 +22,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
   <summary>DNI & IWC</summary>
   ### DNI
-  Proshippers/Darkshippers/etc,
+  (https://rentry.co/dnfifreaks)[basic dni]
  </details>
 
 <details>
