@@ -1,4 +1,4 @@
-# Hello! ${\color{#fb8bcf}I'm  Eris!}$
+# Hello! I'm ${\color{#fb8bcf}Eris!}$
 I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  ${\color{#fb8bcf}TEST}$
