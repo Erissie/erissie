@@ -1,16 +1,15 @@
-## Hi there 👋
+# Hello! I'm Eris!
+## I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
-<!--
-**Erissie/erissie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<details>
 
-Here are some ideas to get you started:
+<summary>My hyperfixations and smaller interests!</summary>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Hyperfixations:
+Genshin Impact, Project Sekai, Umamusume, Twisted Wonderland, Slime Rancher
+
+### Smaller interests:
+Pokemon, Honkai Star Rail, Zenless Zone Zero, Date Everything, A Date With Death, Wuthering Waves,
+Minecraft, Still Wakes the Deep
+
+</details>
