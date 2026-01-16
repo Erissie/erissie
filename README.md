@@ -21,7 +21,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
  <details>
 
-  <summary>${\color{#fb8bcf}DNI}$ ${\color{#fb8bcf}&}$ ${\color{#fb8bcf}IWC}$</summary>
+  <summary>${\color{#fb8bcf}DNI}$ ${\color{#fb8bcf}AND}$ ${\color{#fb8bcf}IWC}$</summary>
  
   ### DNI
   [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
@@ -57,7 +57,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
 <details>
 
-<summary>My ${\color{#fb8bcf}HYPERFIXATIONS}$ ${\color{#fb8bcf}AND}$ ${\color{#fb8bcf}INTERESTS}$</summary>
+<summary>${\color{#fb8bcf}HYPERFIXATIONS}$ ${\color{#fb8bcf}AND}$ ${\color{#fb8bcf}INTERESTS}$</summary>
 
 ### Hyperfixations:
 Genshin Impact, Project Sekai, Umamusume, Twisted Wonderland, Slime Rancher
