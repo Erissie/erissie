@@ -28,14 +28,21 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
  
   ### DNI
   [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
+  
   People who make NSFW jokes in public chat in the safe server
+  
   <img width="299" height="20" alt="image" src="https://github.com/user-attachments/assets/099fec29-d52e-4802-b022-889e1db59561" />
+
+  ^ People who act like this, like I can tell you're a man who no woman wants </3
 
 
   ### IWC
   Ruikasa/Anhane/Akitoya/Emunene shippers unless we're friends,
+ 
   NONSHARING yumeshippers of characters I like (NOT A YUMESHIPPER!)
+ 
   Malleus x 1st/2nd years shippers, Leona x Ruggie shippers, Idia x Lilia shippers
+ 
   Any ex-friends,
  </details>
 
