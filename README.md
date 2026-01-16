@@ -22,7 +22,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
   <summary>DNI & IWC</summary>
   ### DNI
-  (https://rentry.co/dnfifreaks)[basic dni]
+  [https://rentry.co/dnfifreaks](basic dni)
  </details>
 
 <details>
