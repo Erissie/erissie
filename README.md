@@ -8,7 +8,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
  <details>
 
   <summary>BASIC INFO!!</summary>
-  * I'm 19!!
+  - I'm 19!!
   
   - I have autism, please use tone tags
   & be patient!
