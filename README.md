@@ -9,20 +9,34 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
 
   <summary>BASIC INFO!!</summary>
   - I'm 19!!
+ 
   
   - I have autism, please use tone tags
   & be patient!
 
-  - I actually have a hard time talking to others
+
+- I actually have a hard time talking to others
    at first, and am usually scared to interact first
    it does not mean I hate you!! no worries ^_^
+
+
+  - I'm very clingy! I really enjoy hanging out
+   with my friends
  </details>
 
  <details>
 
   <summary>DNI & IWC</summary>
+ 
   ### DNI
-  [https://rentry.co/dnfifreaks](basic dni)
+  [BASIC DNI](https://rentry.co/dnfifreaks), Proshippers/Darkshippers/etc,
+  People who make NSFW jokes in public chat in the safe server
+
+  ### IWC
+  Ruikasa/Anhane/Akitoya/Emunene shippers unless we're friends,
+  NONSHARING yumeshippers of characters I like (NOT A YUMESHIPPER!)
+  Malleus x 1st/2nd years shippers, Leona x Ruggie shippers, Idia x Lilia shippers
+  Any ex-friends,
  </details>
 
 <details>
