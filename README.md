@@ -13,7 +13,10 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
   <summary>BASIC INFO!!</summary>
  
  - I'm 19!
+ - Autistic! Pls be patient & use tone tags!!
  - EXTREMLY clingy! I always want to hang out w green names ^_^
+ - I'd rather you int first because I'm a coward </3
+ - I block freely if you fit my dni
  </details>
 
  <details>
@@ -27,7 +30,7 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
   
   <img width="299" height="20" alt="image" src="https://github.com/user-attachments/assets/099fec29-d52e-4802-b022-889e1db59561" />
 
-  ^ People who act like this, like I can tell you're a man who no woman wants </3
+  ^ People who act like this, like I can tell you're a man when you do this btw
 
 
   ### IWC
@@ -47,6 +50,9 @@ I also go by Haru, Urara, Emu or whoever I'm cosplaying!
   - Cuddle comf! I enjoy people hanging out with me ^_^
   - C+H always unless I have dniuf (VERY RARE)
   - IWCUF just means don't talk to me! Cuddles r fine <3
+  - If we're green names for following each other on github, feel free to cuddle me ^_^
+  - Green names = friends !!!
+  - Always w2i pls!! I'm usually offtab
  </details>
 
 <details>
