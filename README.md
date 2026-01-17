@@ -5,8 +5,6 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=1000&color=FF75D7&width=435&lines=%22From+now+on+take+a+note+of;the+signs+of+your+wish+one+by+one!%22)](https://git.io/typing-svg)
 
-[https://komarev.com/ghpvc/?username=Erissie]
-
  <details>
 
   <summary>${\color{#f3a4ce}BASIC}$ ${\color{#f3a4ce}INFO}$</summary>
