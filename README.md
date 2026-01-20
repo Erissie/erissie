@@ -55,6 +55,9 @@ OK BRO IF YOU SAY SO 😭😭
   - If we're green names for following each other on github, feel free to cuddle me ^_^
   - Green names = friends !!!
   - Always w2i pls!! I'm usually offtab
+  - <img width="415" height="301" alt="image" src="https://github.com/user-attachments/assets/b762de47-64b3-4033-b58d-442e7580809c" />
+  ^ usually seen around here!!
+
  </details>
 
 <details>
