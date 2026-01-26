@@ -5,8 +5,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=1000&color=FF75D7&width=435&lines=%22From+now+on+take+a+note+of;the+signs+of+your+wish+one+by+one!%22)](https://git.io/typing-svg)
 
-<img width="2340" height="1080" alt="image" src="https://github.com/user-attachments/assets/9d28f143-fd5c-40e5-849f-ee0556b3d2c5" />
-WIFE ACHIEVED!!!
+<img width="2340" height="1080" alt="image" src="https://github.com/user-attachments/assets/8414a2ce-1d7f-41bc-b4d3-f2709d63de96" />
+kms ~~postponed~~ tomorrow!!! back on the board baby /j /nsrs
 
  <details>
 
